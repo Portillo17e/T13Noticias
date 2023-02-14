@@ -8,6 +8,6 @@ Los criterios de noticiabilidad se basan en la temporalidad y vigencia de los he
 ### Como encontrarnos 
 [contacto en Facebook]
 (https://www.facebook.com/T13Noticias/)
-![Nuetro Logo]
+![alt text]
 (https://pbs.twimg.com/profile_images/1566722033/5013092822190805_400x400.jpg)
 
